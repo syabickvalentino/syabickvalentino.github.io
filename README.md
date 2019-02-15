@@ -1,1 +1,0 @@
-# syabickvalentino.github.io
